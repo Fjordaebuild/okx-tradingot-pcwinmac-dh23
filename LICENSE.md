@@ -1,4 +1,4 @@
-# 
+# Élite okx trading bot modules complémentaires for Mac OS | Professionnel okx trading bot modules complémentaires for PC Windows. Featuring analyse de la dynamique and pools de liquidité DEX — optimized for maximum performance.
 
 
 
